@@ -8,3 +8,7 @@
 # Desencriptar
 
 ![image](https://github.com/user-attachments/assets/cd9cab1d-4c0e-41a0-9a68-b7e0317fbbc0)
+
+<hr>
+
+### Jose_cueva
